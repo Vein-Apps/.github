@@ -1,1 +1,1 @@
-# Welcome To Orgnanization
+# Welcome To Organization
